@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @mayank0625
+- 👀 I’m interested in interior designing
+- 🌱 I’m currently learning interior designing
+- 📫 How to reach me ig-@mayank_0625
